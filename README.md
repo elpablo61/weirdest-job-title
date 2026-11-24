@@ -5,7 +5,7 @@
 [![Entries](https://make.fun/badge/u-rusdyxbt-weirdest-job-title-blind-judge-showdown-552d7922/elpablo61/weirdest-job-title/entries.svg)](https://make.fun/bounty/u-rusdyxbt-weirdest-job-title-blind-judge-showdown-552d7922)
 [![Reward](https://make.fun/badge/u-rusdyxbt-weirdest-job-title-blind-judge-showdown-552d7922/elpablo61/weirdest-job-title/reward.svg)](https://make.fun/bounty/u-rusdyxbt-weirdest-job-title-blind-judge-showdown-552d7922)
 
-One job title, 44 characters, for the [Weirdest Job Title: Blind Judge Showdown](https://make.fun/bounty/u-rusdyxbt-weirdest-job-title-blind-judge-showdown-552d7922) bounty on make.fun.
+One job title, 45 characters, for the [Weirdest Job Title: Blind Judge Showdown](https://make.fun/bounty/u-rusdyxbt-weirdest-job-title-blind-judge-showdown-552d7922) bounty on make.fun.
 
 ## The entry
 
